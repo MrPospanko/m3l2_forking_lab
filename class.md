@@ -1,0 +1,1 @@
+djeki cola bez pardona
